@@ -1,1 +1,1 @@
-# vortrag-osm-wikidata-fossgis16
+# Projektvorstellung für den Verein Initiativ für behinderte Kinder und Jugendliche
